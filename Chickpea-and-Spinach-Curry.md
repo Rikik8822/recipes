@@ -1,6 +1,8 @@
 
 hi riki
 here is rivky writing to you
+hi riki
+i (yafi) writing to you too! have a nice day!❤️
 
 
 Chickpea and Spinach Curry
