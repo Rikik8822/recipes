@@ -8,10 +8,6 @@ Ingredients:
 - 1/4 cup chopped cilantro
 - 1/2 red onion, finely chopped
 - 1 lime, juiced
-- 1 tsp cumin
-- 1/2 tsp chili powder
-- Salt and pepper to taste
-- 8 small corn tortillas
 - Optional: salsa, hot sauce, vegan sour cream
 
 Preparation:
