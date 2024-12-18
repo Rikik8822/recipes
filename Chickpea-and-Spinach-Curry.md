@@ -4,6 +4,9 @@ here is rivky writing to you
 hi riki
 i (yafi) writing to you too! have a nice day!❤️
 
+love u!
+
+
 
 Chickpea and Spinach Curry
 ===========================
