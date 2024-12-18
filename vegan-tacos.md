@@ -8,7 +8,7 @@ Ingredients:
 - 1/4 cup chopped cilantro
 - 1/2 red onion, finely chopped
 - 1 lime, juiced
-
+ghjj
 
 Preparation:
 1. In a bowl, combine the black beans, corn, avocado, cilantro, and red onion.
