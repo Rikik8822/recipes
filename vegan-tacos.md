@@ -9,7 +9,7 @@ Ingredients:
 - 1/2 red onion, finely chopped
 - 1 lime, juiced
 
-
+abcd
 Preparation:
 1. In a bowl, combine the black beans, corn, avocado, cilantro, and red onion.
 2. Add the lime juice, cumin, chili powder, salt, and pepper. Mix everything gently to combine.
